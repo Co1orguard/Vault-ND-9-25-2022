@@ -3,6 +3,9 @@ Ingredients:
 - 1 lime 
 - 2 tsp salt 
 - jalapeno
+- Iron Oxide
+- Magnesium
+- Sulfer Dioxide
  
 
 Instructions:
